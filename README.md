@@ -12,8 +12,8 @@
 
 ## Feito por:
 
-### Joana Santos
+### João Felipe
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Instagram: https://www.instagram.com/joao_feliperll
 
 ```
